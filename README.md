@@ -1,1 +1,1 @@
-Disney character secret recipes finally revealed.
+Disney characters secret recipe finally revealed.
