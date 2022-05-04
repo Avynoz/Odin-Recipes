@@ -1,1 +1,1 @@
-Remy's Secret Recipe finally revealed
+Disney character secret recipes finally revealed.
